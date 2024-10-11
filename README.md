@@ -1,4 +1,1 @@
- .ıllı.   😇﹔ ✨ 
-﹒ @ Celine  ─  9 pm ﹐ 🇵🇭
-    ^..^    ♓﹒  feb, 27 ：✿   。she/her/any
-         @Celina2010 on YT  𖦹  🕊️ ﹔🌻
+✧ 💫✨ ; hi!! my name is celine, I'm 14, filipino and I love playing pt! ; 🍎🌲 ✧
