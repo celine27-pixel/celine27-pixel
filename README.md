@@ -13,9 +13,6 @@ sign my atabook. **https://celina.atabook.org/** — check my rentry. **https://
 
 ✦
 
-rentries . ݁₊ ⊹ . ݁˖ . ݁
- (some of them are just for the cosplays.)
- 
-*grey / argent* - **rentry.co/argentskulldarkwolf2009**
-*black / branden (crewmate ver.)* - **rentry.co/branden**
-
+Cosplay rentry list . ݁₊ ⊹ . ݁˖ . ݁
+ 1. Grey / Argent (VS IMPOSTER) - **https://rentry.co/argentskulldarkwolf2009**
+ 2. Crewmate Black / Branden - **https://rentry.co/branden**
