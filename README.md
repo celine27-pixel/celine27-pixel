@@ -9,10 +9,14 @@
 *"WHAT?!"* /inspo. seraph from rr
 
 ‎
-sign my atabook. **https://celina.atabook.org/** — check my rentry. **https://rentry.co/celineorcelinasweetheart**
+sign my atabook. **https://celina.atabook.org/** — check out my rentry. **https://rentry.co/celineorcelinasweetheart**
 
 ✦
 
 Cosplay rentry list . ݁₊ ⊹ . ݁˖ . ݁
- 1. Grey / Argent (VS IMPOSTER) - **https://rentry.co/argentskulldarkwolf2009**
+
+Hot0Blood (@Celina2010's VS. Imposter Humanized AU):
+ 1. Grey / Argent - **https://rentry.co/argentskulldarkwolf2009**
  2. Crewmate Black / Branden - **https://rentry.co/branden**
+ 3. Red Imposter / Roan - **https://rentry.co/redimposter**
+ 4. Green Imposter / Oliver - **https://rentry.co/greenimposter1**
