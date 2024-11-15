@@ -9,7 +9,7 @@
 *"WHAT?!"* /inspo. seraph from rr
 
 ‎
-sign my atabook. **https://celina.atabook.org/**
+sign my atabook. **https://celina.atabook.org/** — check my rentry. **https://rentry.co/celineorcelinasweetheart**
 
 ✦
 
