@@ -15,7 +15,7 @@ sign my atabook. **https://celina.atabook.org/** — check out my rentry. **http
 Cosplay rentry list . ݁₊ ⊹ . ݁˖ . ݁
 
 Hot0Blood (@Celina2010's VS. Impostor Human AU):
- 1. Grey / Argent - **https://rentry.co/argentskulldarkwolf2009**
+ 1. Grey / Argent - **https://rentry.co/greycrewmate**
  2. Crewmate Black / Branden - **https://rentry.co/branden**
  3. Red Imposter / Roan - **https://rentry.co/redimposter**
  4. Green Imposter / Oliver - **https://rentry.co/greenimposter1**
